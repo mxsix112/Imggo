@@ -1,1 +1,1 @@
-# Imggo
+Only for myself
